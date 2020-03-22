@@ -23,5 +23,5 @@ https://affinity.serif.com/en-gb/supporting-the-creative-community/
 
 ## Books
 
-* Ryan Holiday - [The Obstacle is the Way](https://www.amazon.co.uk/Obstacle-Way-Ancient-Adversity-Advantage/dp/1781251495/ref=sr_1_1) - A book about surviving adversity and dealing with troubling times.
-* Marcus Aurelius - [Meditations](https://www.amazon.co.uk/Meditations-New-Translation-Modern-Library-ebook/dp/B000FC1JAI/ref=sr_1_3) - a classic stoic text from an emperor who had to deal with significant upheaval in his empire.
+* **Ryan Holiday** - [The Obstacle is the Way](https://www.amazon.co.uk/Obstacle-Way-Ancient-Adversity-Advantage/dp/1781251495/ref=sr_1_1) - A book about surviving adversity and dealing with troubling times.
+* **Marcus Aurelius** - [Meditations](https://www.amazon.co.uk/Meditations-New-Translation-Modern-Library-ebook/dp/B000FC1JAI/ref=sr_1_3) - a classic stoic text from an emperor who had to deal with significant upheaval in his empire.
