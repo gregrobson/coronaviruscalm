@@ -6,12 +6,12 @@ A personal selection or resources to calm people social distancing or isolating 
 ## Joe Wicks - Workouts for Children
 
 9am workouts for children at school.
-https://www.youtube.com/watch?v=K6r99N3kXME
+[https://www.youtube.com/watch?v=K6r99N3kXME](https://www.youtube.com/watch?v=K6r99N3kXME)
 
 ## Free Children's Audio Books
 
 Audible has free children's audiobooks for streawming (no registration required).
-https://stories.audible.com/start-listen
+[https://stories.audible.com/start-listen](https://stories.audible.com/start-listen)
 
 
 ## Work
