@@ -21,10 +21,13 @@ Yoga lessons for all levels from beginnner upwards. All you need is a floor and 
 
 ### Some Fun YouTube Channels
 
+As always - parental discretion required, content and target age range might vary. (Pretty sure Sesame Street is okay for everyone though!)
+
 * [Sesame Street](https://www.youtube.com/user/SesameStreet) - Need I say more? There's a video of Elmo giving a virtual hug!
 * [The Slow Mo Guys](https://www.youtube.com/channel/UCUK0HBIBWgM2c4vsPhkYY4w) videos of things that happen very fast slowed down to ultra-slow motion! Fascinating to watch!
 * [Kurzgesagt "In A Nutshell"](https://www.youtube.com/channel/UCsXVk37bltHxD1rDPwtNM8Q) - explanations of concepts from science and technology using really nice animations.
 * [Virtual Train Journeys (one of many examples)](https://www.youtube.com/watch?v=hvHK4yZNXpk) - search for *slow tv train journey* and you'll find lots of videos from trains that take you through gorges, over bridges, through snow etc. It's strangely relaxing and addictive. Who doesn't want to [up a Swiss mountain?](https://www.youtube.com/watch?v=OeJ5xXrbkfU)
+* [Dude Perfect](https://www.youtube.com/user/corycotton) - Some of the craziest trick shots you've ever seen with sports equipment. These guys are either very good, or have 100s of takes!
 
 ## Free Children's Audio Books
 
