@@ -13,6 +13,8 @@ A personal selection or resources to calm people social distancing or isolating 
 Yoga lessons for all levels from beginnner upwards. All you need is a floor and perhaps a towel.
 [https://www.youtube.com/user/yogawithadriene](https://www.youtube.com/user/yogawithadriene)
 
+* [Pilates and Yoga With Warwickshire Revival Fitness](https://www.youtube.com/channel/UCsWbcuO8CmTyyvlesDQDDLA)
+
 ## Entertainment
 
 ### Background Music
