@@ -1,5 +1,10 @@
 # *Coronavirus Calm*
-A personal selection or resources to calm people social distancing or isolating due to Coronavirus / COVID-19
+A personal selection or resources to calm people social distancing or isolating due to Coronavirus (COVID-19). Has some resources for parents as well.
+
+## Education
+
+* Carol Voderman's website [The Maths Factor](https://www.themathsfactor.com/) for ages 4–11 year olds has been made free during the pandemic.
+* Diane Buswell (Strictly) is providing free dance tutorials on her [Instagram channel](https://www.instagram.com/diannebuswell/)
 
 ## Fitness
 
@@ -37,8 +42,8 @@ As always - parental discretion required, content and target age range might var
 
 ## Free Children's Audio Books
 
-Audible has free children's audiobooks for streawming (no registration required).
-[https://stories.audible.com/start-listen](https://stories.audible.com/start-listen)
+* Audible has free children's audiobooks for streawming (no registration required). [https://stories.audible.com/start-listen](https://stories.audible.com/start-listen)
+* Davd Walliams is releasing a free audio book every day for 30 days [https://www.worldofdavidwalliams.com/elevenses/](https://www.worldofdavidwalliams.com/elevenses/)
 
 ## Books
 
